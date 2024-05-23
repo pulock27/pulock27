@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ; my gmail
 - 😄 Pronouns: ...he
-- ⚡ Fun fact: ...i hate this ><><><
+- ⚡ Fun fact: ...i hate this ><haha><><
   
 
 <!---
