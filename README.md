@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @pulock27
 - 👀 I’m interested in machine learning
-- 🌱 I’m currently learning Deep learning (GAN)
+- 🌱 I’m currently on Deep learning + (GAN)
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ; my gmail
+- 📫 How to reach me ; polockgs34@gmail.com
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ...i hate this >haha<>
   
